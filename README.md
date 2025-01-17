@@ -1,7 +1,7 @@
 # Domino-Dreams-Free-Coins-Without-Verification
 Claim your free BOOSTERS, Coins, Stars, Gold Dominoes for your Domino Dreams! It's immediate, authentic, and tested! Start generating unlimited Coins, Stars, Gold Dominoes now! Compatible with Domino Dreams on iOS and Android . GET FREE COINS LINK
 
-<h2><a href="https://groups.google.com/g/cpa-promote/c/dTD7dSbTI60"><strong>Click Here To Get Link</strong></a></h2>
+<h2><a href="https://allresources.xyz/dominocoins.html/">&gt;&gt;Click Here To Get Free Coins</a></h2>
 
 Strategic Planning
 
